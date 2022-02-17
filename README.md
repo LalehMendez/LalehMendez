@@ -46,5 +46,5 @@ Me gustan los videojuegos y las películas.
 
 ![image](https://user-images.githubusercontent.com/99676609/154554664-0ae9df16-6311-474f-99c6-cb949556a3d7.png) 
 
-🐣🐣🐣🐣🐣🐣🐣🐣🐣🐣🐣 ![ArminGIF](https://user-images.githubusercontent.com/99676609/154562693-63a22994-590d-4535-b251-269c3af27852.gif) 🐣🐣🐣🐣🐣🐣🐣🐣🐣🐣🐣
+🐣🐣🐣🐣🐣🐣🐣🐣 ![ArminGIF](https://user-images.githubusercontent.com/99676609/154562693-63a22994-590d-4535-b251-269c3af27852.gif) 🐣🐣🐣🐣🐣🐣🐣🐣
 
