@@ -5,9 +5,7 @@
 - 🙂
 Soy estudiante de la Preparatoria Federal Lázaro Cárdenas.
 - 😗
-Estoy en la capacitación de TICS.
-- 😊
-Practico danza por las tardes. 
+Estoy en la capacitación de TICS. 
 - 😎
 Me gustan los videojuegos y las películas.
 
